@@ -1,4 +1,4 @@
-# Ah looks it's HD!
+# Ah look it's HD!
 Vi arrar dator- och spelrelaterade (självklart även datorspelrelaterade) aktiviteter. Vårt paradnummer är 'Chilla med HD', ett event som hålls minst två gånger per läsperiod. Då spelar vi spel (brädspel, tv-spel, datorspel) och intar socker i olika former.
 
 Vi tillhandahåller även hjälp i diverse datorrelaterade kurser.
